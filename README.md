@@ -45,7 +45,7 @@
 
 ### 📫 Como me encontrar
 - 💼 [LinkedIn](https://www.linkedin.com/in/merhi-daychoum-354023227)
-- 📫 e-mail de contatp **<merhioriginal@gmail.com>**
+- 📫 e-mail de contato **<merhioriginal@gmail.com>**
 ---
 
 ### 🕒 Estatísticas WakaTime
